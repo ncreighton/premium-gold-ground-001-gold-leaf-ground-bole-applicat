@@ -1,0 +1,2 @@
+# premium-gold-ground-001-gold-leaf-ground-bole-applicat
+Tired of inconsistent gilding results and wasting expensive gold leaf because you can't remember exactly how you applied that perfect bole layer last time?  The Gold Leaf Ground Bole Application and Gilding Planner is the first Notion template built specifically for the traditional gilding workflow. It eliminates guesswork by letting you log every
